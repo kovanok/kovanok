@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kovanok
-- 👀 I’m interested in guitai
+- 👀 I’m interested in guitar
 - 🌱 I’m currently learning computer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 2210065675@qq.com
